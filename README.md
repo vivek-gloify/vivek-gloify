@@ -1,4 +1,4 @@
-👋 Hi, I’m Vivek Kumar Yadav, I build value through design.
+👋 Hi, I’m Vivek Kumar Yadav, I build value through design and development.
 
 Originally hailing from the India 🇮🇳  for the last many years I’ve been honing my skills in design and development, production and management roles building products for the web, mobile, and, more recently .
 
